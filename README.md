@@ -1,2 +1,6 @@
-# JTNNN
-CASS GINCEL GIRIS
+kdnddkdnndjdjdkdkdkdk
+dödödldldl
+d
+döddölddö
+de
+dödö
